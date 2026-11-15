@@ -15,6 +15,7 @@
 
 Hi. I'm 1van, the game developer...?
 Welcome to my little cornerr, ig.
+
 `! - Still figuring myself out, so be patient with me.`
 
 ### 02. — MY INTERESTS ⋆
