@@ -1,4 +1,4 @@
-#   ✦ 𐃈 𝙰𝙽 𝚄𝙶𝙻𝚈 𝚃𝚄𝙼𝙾𝚁'𝚂 𝙲𝙾𝚁𝙽𝙴𝚁 . ✦
+#  ✦ 𐃈 An ugly tumor's cornerr . ✦
 
 <div align="center">
 
